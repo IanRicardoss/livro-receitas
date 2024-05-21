@@ -1,4 +1,0 @@
-#strogonoff de frango
-
-
-
